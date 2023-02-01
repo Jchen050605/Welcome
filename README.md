@@ -33,7 +33,7 @@ coordinating rehearsal times with string quartet<br></li>
 <br>
 </ul>
 
-# Clubs and Organizations
+# Student Organizations
 <ul>
 </ul>
 <li>Junior Chamber Music<br>     							                                    
